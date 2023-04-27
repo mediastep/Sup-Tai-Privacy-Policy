@@ -1,4 +1,4 @@
-Tiger-Hill-Privacy-Policy
+Sup-Tai-Privacy-Policy
 
 ĐIỀU KHOẢN DỊCH VỤ CHUNG VÀ CHÍNH SÁCH BẢO MẬT
 
